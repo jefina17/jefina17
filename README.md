@@ -6,4 +6,7 @@
 - 📚"I'm currently diving into the worlds of data visualization and data modeling, along with exploring the intriguing realm of ethical hacking.
 - 🧩 Programming is like an endless puzzle, and I'm the eager solver. With data, I 🎨 paint stories; with code, I craft solutions. In the world of hacking, I'm the friendly spy 🕵️ seeking digital adventures. 💻🌐
 - 📫 connect with me:
-   YouTube | LinkedIn | Instagram
+
+
+ [YouTube](https://youtube.com/@jefidiaries1513?si=V52f4RC59K5UhWHP) | [LinkedIn](https://www.linkedin.com/public-profile/settings?trk=d_flagship3_profile_self_view_public_profile) | [Instagram](https://www.instagram.com/travel_feel_vibezz/?igshid=OGQ5ZDc2ODk2ZA%3D%3D)
+
